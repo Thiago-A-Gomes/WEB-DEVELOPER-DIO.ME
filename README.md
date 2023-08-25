@@ -19,6 +19,6 @@ habilidade🔁 Intermediario: HTML / CSS ✅
 Avançando      Intermediario: javascript / C++✅
                Basico: php
 ======================================================================
-Celular para contanto:(11)958179429
+Celular para contanto:(11)958179439
 Gmail:thigogo3@gmail.com
 -----------------------------------------------------------------------

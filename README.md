@@ -1,5 +1,6 @@
 # 👨🏿‍🦱Thiago Aparecido GOMES #
 ====================================================================
+
 📃Me chamo Thiago tenho 22 anos,Estou inciando na área de 
 programação.Atualmente estou cursandoo ensino superior           
 em Analise e desenvolvimento de sistemas,estou em processo 
